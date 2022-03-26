@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @YulkaOwca
+- 👀 I’m interested in Crypto
+- 🌱 I’m currently learning Phyton
